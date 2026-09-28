@@ -1,0 +1,2 @@
+# premium-flute-column-001-fluted-column-entasis-taper
+Tired of losing track of your fluted column proportions and entasis calculations across sticky notes and scattered PDFs? The Fluted Column &amp; Entasis Taper Craft Hub is your single source of truth for mastering classical column design.  This Notion template centralizes every critical dimension, taper ratio, and flute count for your projects. No more
